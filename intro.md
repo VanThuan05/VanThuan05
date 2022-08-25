@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @VanThuan05
-- 👀 I’m interested in một người
-- 🌱 I’m currently learning lớp 12
-- 💞️ I’m looking to collaborate on riêng tư
+- 👀 I’m interested in alone
+- 🌱 I’m currently learning Grade 12
+- 💞️ I’m looking to collaborate on Private
 - 📫 How to reach me chotoitoithat@gmail.com
 
 <!---
